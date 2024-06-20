@@ -1,4 +1,4 @@
 # lucifer
 the devil
 <br>
-what do you truly desiere
+what do you truly desiere (samayel)
